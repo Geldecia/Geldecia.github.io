@@ -1,1 +1,0 @@
-# Geldecia.github.io
